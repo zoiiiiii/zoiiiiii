@@ -1,1 +1,2 @@
-Find joy in life and be yourself
+编程 / 户外 / 音乐 / 摄影
+探索发现有趣的事物
