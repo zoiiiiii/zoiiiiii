@@ -1,3 +1,2 @@
-编程 / 户外 / 音乐 / 摄影
-
-探索发现有趣的事物
+Coding / Hiking / Music / Photography
+Discovering Life's Wonders
