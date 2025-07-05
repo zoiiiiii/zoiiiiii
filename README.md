@@ -1,3 +1,3 @@
 Coding / Hiking / Music / Photography
 
-Discovering Life's Wonders
+discover and explore interesting things
