@@ -1,3 +1,3 @@
-Coding / Hiking / Photography / Music
+Coding / Hiking / Photog / Music
 
 Discover and explore interesting things
